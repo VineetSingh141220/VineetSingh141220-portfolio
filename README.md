@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **Singhvineet805.com** . 😊😊
 - 🔭 **I’m currently working on:** Frontend & Backend projects.
 - 🌱 **I’m currently learning:** DSA in JAVA with Projects.
 - 💬 **Ask me about:** My skills, Tech Support.
-- 📫 **How to reach me:** Singhvineet805@gmail.com
+- 📫 **How to reach me:** Singhvineet805@gmail.com (7983890840).
 - 😄 **Pronouns:** Vineet Singh.
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me.
 
